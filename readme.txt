@@ -13,4 +13,5 @@ Jakarta 1 Desember 2023 jam 14:30
 https://linktr.ee/kukuhtw
 
 
+Update Senin 11 Desember 2023 Jam 21:55 tentang neuron dan layer
 
